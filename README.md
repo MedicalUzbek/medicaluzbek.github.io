@@ -1,0 +1,2 @@
+# MedicalUzbek.github.io
+teyjtjtykukyuktew5yutyujtyjteyjteyuteyuty
